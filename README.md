@@ -17,6 +17,3 @@
 * [LinkedIn] <https://www.linkedin.com/in/enrico-sotelo-hourneaux-de-moura-b89533262/>
 * [GitHub] <https://github.com/Sankarien>
 * [GitLab] <https://gitlab.com/Sankarien>
-
-## Comentarios por Evandro
-### Belo curriculo, boa sorte!
